@@ -1,3 +1,3 @@
-- 🔥 JavaScript - DEVELOPER
+- 🔥  JavaScript - DEVELOPER
 - 🧬 Proffesional coding 😎🧢
 
